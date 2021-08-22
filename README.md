@@ -1,0 +1,1 @@
+# mapa-mental-estrategia-empresarial-bigdata
